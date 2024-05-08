@@ -1,6 +1,1 @@
-Thanks for downloading this template!
-
-Template Name: MyResume
-Template URL: https://bootstrapmade.com/free-html-bootstrap-template-my-resume/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+Specializing in Discord moderation, server growth, and promotion alongside Google AdSense, Facebook ads, and collaboration management, I excel in fostering digital communities while driving revenue and engagement. With expertise in animations, data entry, YouTube thumbnails, logo design, and frontend development, my portfolio showcases a diverse skill set delivering impactful digital solutions.We offer top of the line solutions to ensure a successful business for you. Check out some of our awesome projects with creative ideas and great design.
